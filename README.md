@@ -2,7 +2,14 @@
 
 My name is Kingsley and I recently made the switch to software engineering! Before I had a background in customer service and healthcare. I have a deep love for building; from legos, to computers, and even keyboards, I am passionate about seeing projects grow from start to end.
 
+Some things I'm interested in:
+- 📱 Tech 
+- 🎮 Video games
+- 🏋🏻 Powerlifting
+- 🏀 Basketball
 
+Connect with me!
+https://www.linkedin.com/in/kingsley-le/
 
 
 
