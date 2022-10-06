@@ -1,6 +1,6 @@
 ### Hello! 👋
 
-My name is Kingsley and I recently made the switch to software engineering!
+My name is Kingsley and I recently made the switch to software engineering! Before I had a background in customer service and healthcare. I have a deep love for building; from legos, to computers, and even keyboard, I am passionate about seeing projects grow from start to end.
 
 
 
